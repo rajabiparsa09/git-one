@@ -1,3 +1,3 @@
 sky and ocean are same colour
-ocean
+ocean father
 mama
